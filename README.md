@@ -3,3 +3,4 @@ Tugas Sistem Berkas, Tentang Dataset_KabutAsap
 hi gannteng
 my goat ronaldo
 menggokil
+- Ariza Tolong jangan ngevideoin aku terus >:(
